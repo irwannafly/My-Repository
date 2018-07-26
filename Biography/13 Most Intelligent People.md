@@ -1,6 +1,6 @@
 # Biography
 
-*but if you judge a fish by its ability to climb a tree, it will live its whole life believing it is stupid.*
+*But if you judge a fish by its ability to climb a tree, it will live its whole life believing it is stupid.*
 -Einstein
 
 ## 13 Most Intelligent People In The History Of The World
